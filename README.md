@@ -1,0 +1,1 @@
+# Ikkinchi_amaliy_ish
